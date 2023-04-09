@@ -13,7 +13,7 @@ SMM
 Social media marketing (SMM) is another important aspect of digital marketing. I can help you create and manage social media campaigns across various platforms such as Facebook, Twitter, Instagram, and LinkedIn. By leveraging the power of social media, I can help you increase your brand awareness, engage with your audience, and drive more traffic to your website.
 
 Contact Me
-If you need help with your WordPress website, SEO, or SMM, feel free to contact me. I am always happy to discuss your project and provide a quote. You can reach me through the contact form on my website or by emailing me at hamza.asif3310@gmail.com.
+If you need help with your WordPress website, SEO, or SMM, feel free to contact me. I am always happy to discuss your project and provide a quote. You can reach me through the contact form on my website or by emailing me at 2018ag6672@uaf.edu.com.
 
 Thank you for visiting my page and I look forward to working with you!
 
